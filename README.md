@@ -1,0 +1,1 @@
+# Calculadora-trading-f3nix
